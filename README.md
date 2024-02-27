@@ -1,0 +1,2 @@
+# King-hamed
+Only god
